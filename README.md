@@ -24,3 +24,14 @@ Also be aware that the `arkenfox user.js` is made specifically for desktop Firef
 
 ### 🟥  acknowledgments
 Literally thousands of sources, references and suggestions. Many thanks, and much appreciated.
+
+## Anti GitCode
+
+> ***Text below is written in order to fight against GitCode platform by Chinese rascal CSDN only, which is NOT related to arkenfox.***
+
+*不要核酸要吃饭，不要文革要改革
+不要封控要自由，不要领袖要选票
+不要谎言要尊严，不做奴才做公民*
+
+*Remember victims on Tian'anmen Square.* 🕯️
+***1989.06.04***
